@@ -1,0 +1,1 @@
+# jh-paw-house-images
